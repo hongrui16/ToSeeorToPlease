@@ -1,1 +1,1 @@
-Will be relased soon
+Will be released soon
